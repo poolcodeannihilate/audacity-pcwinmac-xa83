@@ -1,4 +1,4 @@
-# 
+# Elite Audacity fluxo de trabalho para Mac OS | Personalizado Audacity fluxo de trabalho para PC Windows. Com gráficos em movimento e edição multifaixa — otimizado para máximo desempenho em cada plataforma.
 
 
 
